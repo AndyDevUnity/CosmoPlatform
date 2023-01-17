@@ -1,2 +1,2 @@
 # CosmoPlatform
-## Wath on YouTube - [gameplay](https://AndyDevUnity.github.io/Dynamic-Landing-Page/)  
+## Wath on YouTube - [gameplay](https://youtu.be/PLb-pVKjMFM)  
